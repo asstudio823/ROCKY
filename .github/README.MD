@@ -1,10 +1,10 @@
 
 <h2 align="center">
-    ──「 ʀᴏᴄᴋʏ ᴄᴇᴏ 」──
+    ──「 ʀɪʏᴀ 」──
 </h2>
 
 FULL KANG OF EXON ROBOT
-ALL CREDITS TO [𝐀𝖻𝗂𝗌𝗁𝗇𝗈𝗂](https://github.com/Abishnoi69)
+ALL CREDITS TO [AMALSHAN](https://github.com/asstudio823)
 AND TEAM
 
 THIS IS KANGED AND IMPORTED FOR YOUTUBE VIDEO
@@ -12,7 +12,7 @@ ALL CREDITS TO RESPECTIVE OWNERS
 
 ## ⚡ (ɢɪᴠᴇ sᴛᴀʀ)
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʀᴏᴄᴋʏ ᴄᴇᴏ](https://t.me/MKN_GROUPMANAGE_ROBOT)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [AMALSHAN](https://t.me/asstudio823)**_
 ━━━━━━━━━━━━━━━━━━━━
 <h3 align="center"> 
     𝗚𝗥𝗢𝗨𝗣  𝗠𝗔𝗡𝗔𝗚𝗘𝗥    
